@@ -4,7 +4,7 @@
 - 💞️ 
 - 📫 reach me at:
 - Gmail : irsaatiquekhan@gmail.com
-- Skype : live:.cid.b724a650fad0fecf
+- Skype : https://join.skype.com/invite/JbU2kDnkYzrh
 - linkedin : https://www.linkedin.com/in/dr-irsa-khan-71393a286/
   
 
